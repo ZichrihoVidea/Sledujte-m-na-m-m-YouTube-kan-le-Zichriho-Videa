@@ -1,2 +1,1 @@
-# Sledujte-m-na-m-m-YouTube-kan-le-Zichriho-Videa
-Ahoj :D
+Muj YouTube kanal je Zichriho Videa
